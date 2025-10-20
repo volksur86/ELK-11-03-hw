@@ -30,7 +30,7 @@
 
 ### Решение 3
 
-<img width="1756" height="844" alt="image" src="https://github.com/user-attachments/assets/e2ce950f-6106-4486-a258-f3b21ac1fcbf" />
+<img width="1681" height="867" alt="image" src="https://github.com/user-attachments/assets/d9a2a31c-1ff0-4e80-aab9-b553a867ac9e" />
 
 <img width="1571" height="592" alt="image" src="https://github.com/user-attachments/assets/f567e725-9680-49b0-9479-56d2c7ce855b" />
 
