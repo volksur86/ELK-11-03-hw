@@ -44,5 +44,12 @@
 
 ### Решение 4
 
+<img width="1690" height="1090" alt="image" src="https://github.com/user-attachments/assets/6c6a7358-77fd-48d9-9acb-6cf3b79bdb8c" />
+
+<img width="1261" height="912" alt="image" src="https://github.com/user-attachments/assets/edeee4de-5bbc-49b0-9aac-78e90a8e48a1" />
+
+<img width="1799" height="1040" alt="image" src="https://github.com/user-attachments/assets/0c883d9e-c169-43f9-828a-46c8996e0327" />
+
+
 
 
